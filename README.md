@@ -13,7 +13,6 @@
 
 - 📫 How to reach me **mhamzacpp@gmail.com**
 
-- ⚡ Fun fact **Anything is Possible with determination and knowledge**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
